@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LimitlessLatoya
+- 👋 Hi, I’m Latoya Clark
 - 👀 I’m interested in working out, scuba driving, and traveling.
 - 🌱 I’m currently learning web design.
 - 💞️ I’m looking to collaborate on web design assignments.
